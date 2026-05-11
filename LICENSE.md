@@ -1,4 +1,4 @@
-
+advanced XMind for Windows Integration | presentation-mode + drag-and-drop offers the most advanced XMind for Windows integration, with presentation-mode and drag-and-drop. Ideal
 
 
 
